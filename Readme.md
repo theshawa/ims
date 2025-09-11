@@ -1,1 +1,1 @@
-# [Read more](https://theshawa.notion.site/Inventory-Management-System-26b26020d6c0805d9877cca7f137a6fa?source=copy_link](https://theshawa.notion.site/About-Inventory-Management-System-26b26020d6c0805d9877cca7f137a6fa?source=copy_link)
+# [Read more](https://theshawa.notion.site/About-Inventory-Management-System-26b26020d6c0805d9877cca7f137a6fa?source=copy_link)
